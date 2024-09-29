@@ -1,13 +1,3 @@
-GIRL! *_My Name is Tsukasa tenma i am a star_* aquí está la lista de comandos 🌟
-ᴀǫᴜɪ ᴛɪᴇɴᴇs ʟᴀ ʟɪsᴛᴀ ᴅᴇ ᴄᴏᴍᴀɴᴅᴏs
-╭┈ ↷
-│ ✐ 𝓓𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓭 𝓫𝔂 𝙇𝙞𝙜𝙝𝙩𝙣𝙞𝙣𝙜𝙉𝙚𝙠𝙤 ❤️
-│ ✐ ꒷ꕤ💎ദ ᴄᴏᴍᴀɴᴅᴏs ෴
-│ https://nekos.club/commands
-│ ✐ ꒷ꕤ💎ദ ᴄᴀɴᴀʟ ᴏғɪᴄɪᴀʟ ෴
-│ https://whatsapp.com/channel/0029VaGWwUfB4hdVxH1MDu43
-╰─────────────────
-
 ✐; 💎→ ᴘᴀʀᴀ ᴄʀᴇᴀʀ ᴜɴ sᴜʙ-ʙᴏᴛ ᴄᴏɴ ᴛᴜ ɴᴜᴍᴇʀᴏ ᴜᴛɪʟɪᴢᴀ *#qr* o *#code*
 
 »  ⊹˚୨ •(=^●ω●^=)•  *Economy* ⊹
