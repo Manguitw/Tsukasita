@@ -1,4 +1,4 @@
-GIRL!_My Name is Tsukasa tenma i am a star_
+GIRL! *_My Name is Tsukasa tenma i am a star_* aquí está la lista de comandos 🌟
 ᴀǫᴜɪ ᴛɪᴇɴᴇs ʟᴀ ʟɪsᴛᴀ ᴅᴇ ᴄᴏᴍᴀɴᴅᴏs
 ╭┈ ↷
 │ ✐ 𝓓𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓭 𝓫𝔂 𝙇𝙞𝙜𝙝𝙩𝙣𝙞𝙣𝙜𝙉𝙚𝙠𝙤 ❤️
